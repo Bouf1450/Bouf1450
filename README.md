@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bouf1450
+- 👀 I’m interested in Python & CSS
+- 🌱 I’m currently learning by myself. I started with VBA.I was very cool but now I need more.
+- 💞️ I’m looking to collaborate on ... I'm a newby 
+- 📫 How to reach me ... 
